@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any ongoing blockchain project.
 - 📫 Reach out to me at - 
 -     Emails -> er.sachin90@hotmail.com / choudharysachin90@gmail.com
--     Twitter -> @sachindemocrat
+-     Twitter -> @sachinweb3india
 -     Linkedin -> https://www.linkedin.com/in/choudharysachin90/
 
 
