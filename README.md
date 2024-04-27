@@ -5,6 +5,5 @@
 - 📫 Reach out to me at - 
 -     Emails -> er.sachin90@hotmail.com / choudharysachin90@gmail.com
 -     Twitter -> @sachinweb3india
--     Linkedin -> https://www.linkedin.com/in/choudharysachin90/
-
+-     Linkedin -> https://www.linkedin.com/in/sachininc/
 
